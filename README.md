@@ -1,5 +1,5 @@
 BADGE WALL (ASCII BLOCK)
-
+                    buymeacoffee.com/RickCreator87                
 `
 [ HyperSpeed ] [ Quantum‑Shield ] [ zk‑Identity ]
 [ Aurora Engine ] [ AI‑Circuitry ] [ Parallel Prover ]
